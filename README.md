@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RICARDOTORRES1962
-- 👀 I’m interested in estudar e aprender girhub ..
+- 👀 I’m interested in estudar e aprender github ..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on all ..
 - 📫 How to reach me ...
